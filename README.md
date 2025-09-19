@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently studying on CCE<br>👯 I’m looking to collaborate <br>🤝 I’m looking for help with<br>🌱 I’m currently learning<br>💬 Ask me about<br>⚡ Fun fact
+🔭 I’m currently studying on CCE<br> Passionate about coding and building creative projects <br>🤝 Reach me at alexlixen.official@gmail.com
 
 
 ## 🌐 Socials:
